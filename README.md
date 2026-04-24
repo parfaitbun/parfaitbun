@@ -1,6 +1,6 @@
 <img width="1200" height="675" alt="Untitled160_20260424170045" src="https://github.com/user-attachments/assets/1571d681-142a-47ef-8acf-a36abf63645b" />
 ㅤ۪ ㅤ      october girl  ꒱  ⏤ㅤ  ۪
-ㅤ𓈒  "don't forget the blue paint" ⠀ׂㅤ.  ͡꒱
+ㅤ𓈒  "WHO WILL BE THE COCO TO MY AGOTT?!" ⠀ׂㅤ.  ͡꒱
 
 <img width="1200" height="675" alt="Untitled160_20260424163435" src="https://github.com/user-attachments/assets/3048962d-3fbc-4aee-ad80-97592bd92f78" />
 ✧  ⌒⌒
