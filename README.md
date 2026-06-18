@@ -7,3 +7,5 @@ currently remaking!! basically a wip
 <a href="https://narisour.straw.page/">
   <img src="https://github.com/user-attachments/assets/71005eff-33e1-4e25-b132-862267d235b1" alt="The word STRAWPAGE in a stylized, rough-edged font with a textured purple and pink anime illustration overlay" width="1500" height="500" />
 </a>
+<img width="1500" height="500" alt="Untitled274_20260618214141" src="https://github.com/user-attachments/assets/ef3f87d2-5374-470c-8d6c-29996b830638" />
+
