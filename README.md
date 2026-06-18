@@ -1,4 +1,5 @@
-<img width="1500" height="500" alt="Untitled274_20260618202830" src="https://github.com/user-attachments/assets/5df8fbc6-714c-4610-9a65-060d3094ed83" />
+<img width="1500" height="500" alt="Untitled276_20260618215108" src="https://github.com/user-attachments/assets/2cd0313d-9248-4820-80d5-a20c9204745f" />
+
 <a href="https://puffies.atabook.org/">
   <img src="https://github.com/user-attachments/assets/d3324aba-3bc6-4ea8-b8c9-3132137901bf" alt="The word ATABOOK in a stylized, rough-edged font with a textured purple and pink anime illustration overlay" width="1500" height="500" />
 </a>
