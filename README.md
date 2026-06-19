@@ -7,4 +7,5 @@
   <a href="https://narisour.straw.page/">
   <img src="https://github.com/user-attachments/assets/247ab4dd-e9bf-4214-8023-5c27c448457b" alt="The word STRAWPAGE in a stylized, rough-edged font with a textured purple and pink anime illustration overlay and a light outline border" width="1500" height="500" />
 </a>
-<img width="1500" height="500" alt="Untitled274_20260618214141" src="https://github.com/user-attachments/assets/db349974-5b6a-43c2-b87c-3ecd0d9b8772" />
+<img width="1500" height="500" alt="Untitled277_20260619101235" src="https://github.com/user-attachments/assets/7affe23a-c14d-4fd6-9664-378deb281451" />
+
